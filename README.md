@@ -1,5 +1,5 @@
-# 💫 About Me:
-Hi, I am Ahmed,<br><br>I am system- and process-oriented professional with over 17 years of experience in the Information and Communications Domain.
+# 💫 General Info:
+My name is Ahmed. I am system- and process-oriented professional with over 17 years of experience in the **Information and Communications Domain**.
 
 
 ## 🌐 Socials:
