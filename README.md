@@ -1,5 +1,5 @@
 # 💫 General Info:
-My name is Ahmed. I am system- and process-oriented professional with over 17 years of experience in the **Information and Communications Technology**.
+My name is Ahmed. I am system- and process-oriented professional with over 17 years of experience in **Information and Communications Technology**.
 
 
 ## 🌐 Socials:
